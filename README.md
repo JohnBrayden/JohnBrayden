@@ -1,3 +1,3 @@
 ## 👋 Hi, I’m [@John's](https://github.com/xJoha)
 
-**i do not active or looking for team or hire, i work with myself often.**
+**I am not currently active in terms of public projects, team collaboration, or any social activities. Most likely, I am active and developing software, and similar tasks, independently and privately.**
